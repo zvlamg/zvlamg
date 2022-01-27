@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @zvlamg
 - 👀 I’m interested in coding and programing
 - 🌱 I’m currently learning coding
-- 💞️ I’m looking to collaborate on apple
+- 💞️ I’m looking to work on apple as my highest goal.
 - 📫 How to reach me daviddzvlaa@gmail.com
 
 <!---
